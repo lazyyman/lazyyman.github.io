@@ -1,0 +1,1 @@
+# lazyyman.github.io
